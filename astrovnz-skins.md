@@ -9,4 +9,4 @@
 - [XooMoon edit - Xooty x WHP](https://drive.google.com/file/d/1zwfjV2YWRtqqIYSuyJhqDcx9Mwsu21m-/view?usp=drive_link)
 - [Hurrikate Astolfo](https://drive.google.com/file/d/1HnNBLHih2DPHemTQtsJ_eiArQPo_I-2A/view?usp=drive_link)
 - [Hu tao - Walnut](https://drive.google.com/file/d/1EM41TsrvhgYhhqPwDrMSCHf3tDheYmHr/view?usp=drive_link)
-![Hu tao - Walnut Preview](https://github.com/user-attachments/assets/24deba19-4e92-4c98-a857-0b8da3b777ea)
+- [Bunny - peripheral UR(LAZER ONLY)](https://drive.google.com/file/d/1yGMOJuNu_i7LRJ3nkPM9Kmym-4r9RMwe/view?usp=drive_link)
