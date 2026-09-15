@@ -1,5 +1,10 @@
-## AstroVnz Osu!Skins
+## AstroVnz Osu!Skins         v   This is currently my main skin v
+- [Bunny - peripheral UR(LAZER ONLY)](https://drive.google.com/file/d/1LX1ibF3J9JaM843_Z6c1rWJ7t-f-cjMQ/view?usp=drive_link)
+- short description for this skin: Normal UR bar = very boring
+- so, Peripheral UR BAR !!
+- LEFT = SLOW/LATE   -   RIGHT = FAST/EARLY
 
+  - v these are older skins i used to main or use often, no specific order or anything v
 - [Ryo Yamada - main skin](https://drive.google.com/file/d/1OEN_cI0uzCACufZJTbvdJrKv41IaqRiA/view?usp=sharing)
 - [Altruism Sacril](https://drive.google.com/file/d/1QkpavGuo_wjQhtjw2WX9kBx-n5vlotdI/view?usp=drive_link)
 - [Amanita](https://drive.google.com/file/d/1S28TUenXeSvhawSs9vJYXoAIQcLtoD-b/view?usp=drive_link)
@@ -9,4 +14,3 @@
 - [XooMoon edit - Xooty x WHP](https://drive.google.com/file/d/1zwfjV2YWRtqqIYSuyJhqDcx9Mwsu21m-/view?usp=drive_link)
 - [Hurrikate Astolfo](https://drive.google.com/file/d/1HnNBLHih2DPHemTQtsJ_eiArQPo_I-2A/view?usp=drive_link)
 - [Hu tao - Walnut](https://drive.google.com/file/d/1EM41TsrvhgYhhqPwDrMSCHf3tDheYmHr/view?usp=drive_link)
-- [Bunny - peripheral UR(LAZER ONLY)](https://drive.google.com/file/d/1LX1ibF3J9JaM843_Z6c1rWJ7t-f-cjMQ/view?usp=drive_link)
